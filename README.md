@@ -1,9 +1,17 @@
-nort's git is being updated at the moment
+HELLO EVERYPONY
 
-so all you have to know is that ,,,, she still accepts c+h and w2i
+THIS WILL BE UPDATED SOON I PROMISE
 
-but heavily discourages inspo from her/our skins unless its from friends we know
+THE THING IS, NORTS IS JUST A VERY LAZY HOST.
 
-this'll change soon once it's finished,,, it's very bland ikik</3
+NEO WOULD'VE DONE THIS FOR HER SINCE SHE'S GOOD AT MAKING AESTHETIC STUFF..
+BUT SHE HASN'T FRONTED AT ALL BECAUSE NORTS HAS BEEN WAYYY TOO JOYFUL FOR THE PAST WEEK
 
-— 7n7
+ADDITONALLY, SHE DOESN'T HAVE TIME TO DO ALL THAT CODING JUNK
+
+DESPITE HER NOT KNOWING HOW TO CODE SHE WILL STILL DO THE README JUST NOT NOW
+
+OKAY OTHER THAN THAT HAVE A NICE DAY/NIGHT!!
+
+-FIDDLEPAT :)
+
