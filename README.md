@@ -4,8 +4,14 @@
 
 $\color{#C0D4D4}{\textsf{Conqueror of the Century's End}}$<br>
 
-$\color{#C0D4D4}{\textsf{i love making new friends so idm if you try starting a conversation with me lalala}}$<br>
+$\color{#C0D4D4}{\textsf{i love making new friends so idm at all}}$<br>
 
-$\color{#C0D4D4}{\textsf{sorry i neve rgtot to actuallh make this look aesthetic,,... ID RATHER MAKE THIS }}$<br>
+$\color{#C0D4D4}{\textsf{if you try starting a conversation with me lalala}}$<br>
+
+$\color{#C0D4D4}{\textsf{sorry i neve rgtot to actuallh}}$<br>
+
+$\color{#C0D4D4}{\textsf{make this look aesthetic,,...}}$<br>
+
+$\color{#C0D4D4}{\textsf{ID RATHER MAKE THIS }}$<br>
 
 $\color{#C0D4D4}{\textsf{LOOK SIMEPL THAN LEARN CODING??.. anyways hi}}$<br>
